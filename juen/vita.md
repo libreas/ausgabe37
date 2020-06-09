@@ -1,0 +1,2 @@
+---
+**Sara Juen**, *1983, Sortimentsbuchhändlerin, von Okt. 2016 – Sept. 2019 Bachelorstudium in Bibliotheks- und Informationswissenschaft an der Humboldt Universität zu Berlin, seit Oktober 2019 im Master für Informationswissenschaft (HU). ORCID: <https://orcid.org/0000-0003-0725-8592>
