@@ -1,5 +1,5 @@
 # ausgabe 37
-Nachhaltigkeit von Forschungsinfrastruktur
+Forschung und Öffentliche Bibliothek
 
 
 [Workflow Satz](https://github.com/libreas/libreas.github.io/wiki/Workflow-Satz)
