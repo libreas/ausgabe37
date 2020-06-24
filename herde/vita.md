@@ -1,0 +1,2 @@
+---
+**Sari Herde** hat Finnougristik an der Universität Hamburg studiert und ist seit 2002 Fremdsprachenassistentin in der Osteuropa-Abteilung der Staatsbibliothek zu Berlin. Berufsbegleitendes Fernstudium der Bibliotheks- und Informationswissenschaft am IBI der HU Berlin von 2017-2019.
